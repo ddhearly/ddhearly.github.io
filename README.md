@@ -1,1 +1,0 @@
-# ddhearly.github.io
